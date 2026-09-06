@@ -9,3 +9,6 @@ I am first getting my "Responsive Web Design Certification" in order to build my
 - Complete "JavaScript Certification"
 - Finish designing website
 - Publish the website
+
+### Update
+So far, I had to postpone my process to relearning CSS and HTML but I decided to write down the most common codes that are used for CSS and HTML and study them. By study I mean actively writing the code out and learning the structure and getting an overall understanding of what it's supposed to look like. 
