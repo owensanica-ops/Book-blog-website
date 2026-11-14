@@ -19,4 +19,4 @@ So far, I had to postpone my process to relearning CSS and HTML but I decided to
 Because of this I have dedicated my time to reading "How to develop a brilliant memory week by week by Dominic O Brian" and had taken 4 techniques from the book to use in daily life. I will also start using a note taking system to remember information from a book.
 https://www.youtube.com/watch?v=1P5HxW8hwYE&list=WL&index=4
 
-I will use these techniques to also write book reviews in order to practice writing a proper essay, gain a good understanding, and also make a bit of a profit.
+I will use these techniques to also write book reviews in order to practice writing a proper essay, gain a good understanding, and also make a bit of a profit. Right now I am currently reading New Moon, Narrative of the life of Fredrick Douglass, and Life Skills by Julia Laflin. I'll integrate the same techniques in the video and then right reviews on the books to use as examples for future customers who want book reviews. 
