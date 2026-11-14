@@ -17,6 +17,6 @@ So far, I had to postpone my process to relearning CSS and HTML but I decided to
 ### It's been a while since Ive updated this part of my GitHub but after a while I decided that I would dedicate my time to my memory. My memory is absolutly terrible and Im not going to be able to finish building a website or write a book review if I cant remember anything. 
 
 Because of this I have dedicated my time to reading "How to develop a brilliant memory week by week by Dominic O Brian" and had taken 4 techniques from the book to use in daily life. I will also start using a note taking system to remember information from a book.
-https://www.youtube.com/watch?v=Rvey9g0VgY0&t=339s
+https://www.youtube.com/watch?v=1P5HxW8hwYE&list=WL&index=4
 
 I will use these techniques to also write book reviews in order to practice writing a proper essay, gain a good understanding, and also make a bit of a profit.
